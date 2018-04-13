@@ -11,3 +11,6 @@
 
 - [The Imperial White Army Strikes Back! | Issue #5](https://docs.google.com/document/d/1jRPsPMq8dLTvt5mXFtEH6Vk3vsfD0QIbMnEMzZ9g1r8/edit?usp=sharing) - **This issue is about mainly the military ranging from the Officer Academy to the EZIC raids.**
 
+
+
+*[Return to the Main Page](https://slayerbest01.github.io/associated-press-of-the-federation/)*
