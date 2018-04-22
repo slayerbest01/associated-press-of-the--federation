@@ -11,6 +11,8 @@
 
 - [The Imperial White Army Strikes Back! - Issue #5](https://docs.google.com/document/d/1jRPsPMq8dLTvt5mXFtEH6Vk3vsfD0QIbMnEMzZ9g1r8/edit?usp=sharing) - **This issue is about mainly the military ranging from the Officer Academy to the EZIC raids.**
 
+- [The Old, the New, the Wanted](https://docs.google.com/document/d/1_9xcONEqFaW3Ftrf8Wcxd6hz_YAg0fUC6lhme8L2nlQ/edit?usp=sharing) - **This issue of the newspaper is about various things ranging from Federation Maritime to divisions in the military.**
+
 
 
 *[Return to the Main Page](https://slayerbest01.github.io/associated-press-of-the-federation/)*
