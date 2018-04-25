@@ -7,7 +7,7 @@
 
 - Click [here](https://slayerbest01.github.io/associated-press-of-the-federation/articles) for the Article Section of the Website
 
-- Click [here]() for the Video Section of the Website
+- Click [here](https://slayerbest01.github.io/associated-press-of-the-federation/videos) for the Video Section of the Website
 
 - Click [here](http://discord.gg/TpPNG5w) for the Discord Server
 
