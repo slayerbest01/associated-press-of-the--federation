@@ -13,6 +13,8 @@
 
 - [The Old, the New, the Wanted](https://docs.google.com/document/d/1_9xcONEqFaW3Ftrf8Wcxd6hz_YAg0fUC6lhme8L2nlQ/edit?usp=sharing) - **This issue of the newspaper is about various things ranging from Federation Maritime to divisions in the military.**
 
+- [The Glorious IRF: Jobs](https://docs.google.com/document/d/1pfs4QT-ebMFEzMMkZ1d2Z4KImxKAqhVPslCChxpKPAM/edit?usp=sharing) - **This issue of the newspaper is mainly about the Job Fair, and the APF's team.**
+
 
 
 *[Return to the Main Page](https://slayerbest01.github.io/associated-press-of-the-federation/)*
